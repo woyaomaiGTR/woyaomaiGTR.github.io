@@ -1,2 +1,0 @@
-# woyaomaiGTR.github.io
- 
